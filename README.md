@@ -1,1 +1,1 @@
-# notes
+# https://urbanearthymama.github.io/notes/
